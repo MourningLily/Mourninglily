@@ -9,9 +9,7 @@ There were moments where I felt ignored, misunderstood, or treated unfairly. Som
 I'm not saying I handled everything perfectly. I didn't. But I don't think it's fair to reduce everything that happened to "Cy was the problem." I was reacting to situations that were affecting me too.
 
 I'm not asking everyone to agree with me. I just want people to understand that there was another side to this, and that my actions didn't happen in a vacuum. I take responsibility for my mistakes, but I also hope people can acknowledge that the situation was more complicated than it may have seemed. 
-I'm not mentioning anyone by name because this isn't meant to call people out, start arguments, or make anyone look bad. Everyone involved has their own perspective, and I'm only speaking about my own feelings and experiences.
-<!--
-**MourningLily/Mourninglily** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+I'm not mentioning anyone by name because this isn't meant to call people out, start arguments, or make anyone look bad. Everyone involved has their own perspective, and I'm only speaking about my own feelings and experiences.Maybe you didn't mean to, but I feel like I've become the villain in a story that was never that simple.I can handle people disliking me. What hurts is feeling like nobody wanted to understand why I was hurting too.
 
 Here are some ideas to get you started:
 
